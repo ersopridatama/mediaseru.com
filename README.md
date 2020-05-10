@@ -1,1 +1,1 @@
-# Blog1
+# mediaseru.com
